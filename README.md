@@ -1,5 +1,5 @@
 # ePortfolio
-Evidence is provided hee of the following objectives
+Evidence is provided of the following objectives
 1.Explain communication conepts and strategies
 . Add evidence item
 2.Show confidence and skills in oral communication and presentations
