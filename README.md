@@ -1,12 +1,12 @@
 # ePortfolio
 Evidence is provided of the following objectives
 1. Explain communication concepts and strategies
-- The first two weeks of COIT11239 were on the topics of communication skills and interpersonal communication. With focus on language choices and nonverbal communication
+- The first two weeks of COIT11239 were on the topics of communication skills and interpersonal communication. With focus on language choices and nonverbal communication to enchance the connection to the audience which will improve the quality of communication for future tasks. This is throught the use of different forms of channels used, such as through face to face or emails, and the use of gestures such as nodding of the head to convey understanding or the use of hand gestures. 
 2. Show confidence and skills in oral communication and presentations
- - This is shown in week 7 during the practice presentation in COIT11239, which can be seen [here](https://drive.google.com/file/d/1rjRzehTc6KJjPth90jd7h2z7tf0ov_Vb/view?usp=)
+ - This is shown in week 7 during the practice presentation in COIT11239 on the Indigenous population and how cybersecurity can help improve their understanding of the internet, which can be seen [here](https://drive.google.com/file/d/1rjRzehTc6KJjPth90jd7h2z7tf0ov_Vb/view?usp=)
 3. Work effectively as part of a team
-- In weeks 3, 4 and 5, team work was required in the COIT11239 tutorial
+- In weeks 3 and 4 team work was required in the COIT11239 tutorial. This was done through a facts and opinions session and conflict roleplay, with both being completed in pairs. The facts and opinions session was done with on person listening to the other read out paragraphs with prompts given to the listener to either be a good listener or to be distruptive to the speaker. After some time, both parties swapped and feedback as given to improve the communication skills for future tasks. The conflict roleplay was to make and read a script to resolve a conflict in the workplace.
 4. Communicate effectively in a professional context
- - Week 6 wad to create a report on an article by Muriel Scott and to analyse the benefits and and challenges faced by Global Virtual Teams
+ - Week 6 was to create a report on an article by Muriel Scott and to analyse the benefits and and challenges faced by Global Virtual Teams. This article was made to better understand how Global Virtual Teams work around challenges and conflicts to make sure the task is completed to the best quality. It outlines the pros and cons of how the team overcame challenges and how it can be adapted to suit other teams in the future.
  5. Define and demonstrate conflict management and resolution strategies
- - During week 4, as part of the COIT11239 tutorial on conflict roleplays, conflict management and strategies to resolve conflict were discussed and a worksheet was completed
+ - During week 4, as part of the COIT11239 tutorial on conflict roleplays, conflict management and strategies to resolve conflict were discussed and a worksheet was completed. This was done in pairs, with a script made to find a resolution to a scenario in a workplace environment, that benefits both parties in the conflict.
